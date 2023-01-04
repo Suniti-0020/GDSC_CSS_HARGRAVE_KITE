@@ -1,1 +1,7 @@
 # GDSC_CSS_HARGRAVE_KITE
+
+VISIT
+
+https://suniti-0020.github.io/GDSC_CSS_HARGRAVE_KITE/
+
+TO VIEW
